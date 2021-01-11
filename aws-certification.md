@@ -1,0 +1,17 @@
+- recoup
+- conjunction
+- mitigate
+- adamant
+- appliance
+- commission
+- ingress/egress
+- incur
+- courtesy
+- outage
+- accredition
+- accreditation
+- mandate
+- red-herring
+- apex
+- grace
+
