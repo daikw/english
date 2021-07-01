@@ -1,4 +1,10 @@
 - excruciation
 - finicky
 - berth
- 
+- on the fly
+- pitfall
+- linger
+- ostensibly
+- behoove
+- reconnaissance
+- astute 
