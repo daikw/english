@@ -1,0 +1,26 @@
+- nosy
+- cul-de-sac
+- alley
+- mow
+- inmate
+- gait
+- meander
+- prep
+- preparatory
+- beat
+- subtleties
+- nit-picky
+- glean
+- pertinent
+- bogus
+- trek
+- distractor
+- dumb
+- horrendous
+- dump / check in (DNS)
+- caret
+- obfuscate
+- reminiscent
+- pie
+- freebie
+
