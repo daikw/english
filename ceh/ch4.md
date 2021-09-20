@@ -1,0 +1,22 @@
+- susceptible
+- promiscuous
+- starvation
+- unsolicited
+- amber
+- rocket science
+- self-explanatory
+- courseware
+- -ware
+- shenanigan
+- hilarity
+- slip
+- brim
+- budding
+- misnomer
+- egress
+- tome
+- harp
+- folk
+- pesky
+- foolproof
+
