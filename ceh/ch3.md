@@ -1,0 +1,20 @@
+- pat
+- salient
+- glean
+- legitimate
+- knack
+- moot
+- haphazard
+- hither
+- bid
+- addendum
+- lit (light)
+- indisputable
+- spotty
+- sketchy
+- derisive
+- snort
+- admittedly
+- bunch
+- spool
+
