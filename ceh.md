@@ -1,3 +1,5 @@
 - untethered
 - tether
+- demeanor
+- testimonial
 
