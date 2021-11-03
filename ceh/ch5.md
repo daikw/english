@@ -1,0 +1,17 @@
+- brawl
+- hokey
+- insofar
+- groovy
+- treatise
+- leisure
+- picky
+- lingo
+- privy
+- stager
+- quirky
+- law-abiding
+- accentuate
+- deception
+- hone
+- awe
+
