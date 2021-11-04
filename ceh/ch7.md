@@ -1,0 +1,19 @@
+- emanating
+- outward
+- shore
+- spring out
+- speculation
+- garbled
+- mess
+- humble
+- lei
+- a'ole pilikia
+- inane
+- minutia
+- shake
+- in disgust
+- misnomet
+- discern
+- rogue
+- predicate
+
