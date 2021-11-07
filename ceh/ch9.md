@@ -1,0 +1,27 @@
+- fiery
+- whimper
+- hassle
+- exhilarate
+- perpetual
+- diaper
+- recital
+- rapture
+- rupture
+- drove (past tense of `drive`)
+- rang (past tense of `ring`)
+- hypnotic
+- offering
+- courseware
+- regulatory
+- adversarial
+- due diligence
+- inadequate
+- nefarious
+- subpoena
+- peruse
+- intermediary
+- comingle / co-mingle (paste tense: comingled)
+- passage
+- pilfer
+- curtail
+
